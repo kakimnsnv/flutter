@@ -1,1 +1,0 @@
-# kakimnsnv.github.io
